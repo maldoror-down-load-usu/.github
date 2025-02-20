@@ -8,7 +8,7 @@ Maldoror captivated audiences with its heart-wrenching love story and unforgetta
 
 ### [➤ ►🌍📺📱👉   Maldoror (2025) F𝚞ll Mo𝚟ie Downl𝚘ad](https://rb.gy/2g7z8y)
 
-[![watch_full_movie](#GAMBAR#)
+[![watch_full_movie](https://media.themoviedb.org/t/p/w533_and_h300_bestv2/a4ULO051eV1XRiKOZXnyNpc381H.jpg)
 
 ### **Official Announcement and Production Updates**
 
